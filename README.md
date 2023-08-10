@@ -1,1 +1,0 @@
-# gump7302.github.io
